@@ -26,7 +26,7 @@ $${\color{#e8ecd8}\text{generally no dni, though be js not weird around me or my
 
 $${\color{#e8ecd8}\text{16+ iwc unless already friends}}$$
 
-$${\color{#7d496f}\text{tobias/crim, they/he demiboy}}$$
+$${\color{#7d496f}\text{tobias/crim, they/he boyflux}}$$
 
 $${\color{#7d496f}\text{socially awkward. i may not talk to u if were friends recently}}$$
 
