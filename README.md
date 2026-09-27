@@ -37,6 +37,12 @@ I am online 24/7, staying home most of the time, so you'll find me on almost eve
  
 
 this is the oomfie spot. i mention them here so if you'd like to be mentioned in here if your one of my moots then ask meeee :3
+
+<div align="left">
+
+$\texttt{\color{#c83c6a}Penelope Shifter : @PixelBrickz}$
+
+$\texttt{\color{#710c0c}Xaphan : @RottenPlate}$
 </details>
 
 [<img align="center" width="200" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/af8c2612da5599f08caddbe6decf4fea4e4dc0c6/kuri(1).png">](https://gvardianangel.straw.page)   [<img align="center" width="200" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/d15f29666cb33a8e74a59700463a63780f00127e/cifer(2).png">](https://guns.lol/aregectze)    [<img align="center" width="200" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/af8c2612da5599f08caddbe6decf4fea4e4dc0c6/isda(1).png">](https://crimsonrodamrix.atabook.org/)
@@ -44,3 +50,18 @@ this is the oomfie spot. i mention them here so if you'd like to be mentioned in
  
 
 <img align="center" width="600" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/d15f29666cb33a8e74a59700463a63780f00127e/tumblr_0953ed4c79aaf630bdf66117ca666f81_d52862b7_1280.gif">
+
+ 
+
+<details>
+<summary>$\texttt{\color{#0f4297}little corner dont look im embarrassed.}$</summary>
+
+ 
+
+<img align="center" width="300" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/e986dc9d4e7f2a356a8f38062405fb3f93c020f3/Jorsawsee_ghost_idle.gif"> i knwo i selfshipped with jorsawsee specifically the um .the dumb little legacy version but while making this i was looking through the triffle mod wiki and i saw that powers has a wiki.and the jorsawsee jam guys aslo have a wiki too so i checked jorsawsee's right thinking he'd be cute in triffle but
+<img align="center" width="300" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/e986dc9d4e7f2a356a8f38062405fb3f93c020f3/Jordansee.png"> THATS HER???? SHESSP CUTE IM DEAD I LOVE BOTH VERSIONS i really love jorsawsee dude im sorry SHES NAMED JORDANSEE APPARENTLY HERE and its so freaking adorable i wanna kiss both versions on the cheek affectionately
+
+i dont know if I should separate both designs as their own characters since they're the same person but ill do so because triffle jors has a different name, design and slightly different pronouns(he/she/they from there, and legacy jors having they/he)
+
+i love them both theyre so adorableee i needed to rant about them ugh sorry its corny
+</details>
