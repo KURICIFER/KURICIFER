@@ -4,7 +4,7 @@
 
 $\texttt{\color{#b5ab9f}kuri}$ $\texttt{\color{#a49179}cifer}$   $\texttt{\color{#90745c}𖹭}$   $\texttt{\color{#7b5546}ash}$ $\texttt{\color{#63311e}magmas}$
 
-<img align="center" width="500" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/7197918945d24167af885cc7d0f0898cf0e4b206/tumblr_c73f162c40cebea6cf6cfe07d6c06c06_7cf32a48_1280(1).png">
+<img align="center" width="400" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/7197918945d24167af885cc7d0f0898cf0e4b206/tumblr_c73f162c40cebea6cf6cfe07d6c06c06_7cf32a48_1280(1).png">
 
 [![Hits](https://hits.sh/github.com/hiopes.svg?label=KILLS&color=b6aca0&labelColor=65483c&logo=adafruit)](https://hits.sh/github.com/hiopes)
 
