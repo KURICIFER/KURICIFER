@@ -32,10 +32,10 @@ I am online 24/7, staying home most of the time, so you'll find me on almost eve
 </details>
 
 <details>
-<summary>$\texttt{\color{#63311e}friendos}$</summary>
  
+ 
 
- 
+<summary>$\texttt{\color{#63311e}friendos}$</summary>
 this is the oomfie spot. i mention them here so if you'd like to be mentioned in here if your one of my moots then ask meeee :3
 </details>
 
