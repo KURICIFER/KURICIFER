@@ -16,7 +16,16 @@ $\texttt{\color{#b5ab9f}kuri}$ $\texttt{\color{#a49179}cifer}$   $\texttt{\col
 
 <details>
 <summary>BYI</summary>
-zzz
+
+ 
+
+<img align="center" width="100" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/5be30008a3e28758ee06a192d029dc621c241de5/tumblr_3142eb77e582b991edfc669f13a78c51_3bd06221_100.png"> <img align="center" width="100" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/5be30008a3e28758ee06a192d029dc621c241de5/tumblr_7944c487c58f5709fe1d6f866ced1a53_52057a41_400.png"> <img align="center" width="100" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/5be30008a3e28758ee06a192d029dc621c241de5/tumblr_7b91ebeedcf80dbd3897a17334a90eed_c6a0e6fa_100.png">
+ 
+ <img align="center" width="100" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/5be30008a3e28758ee06a192d029dc621c241de5/tumblr_9245db6f2847985a2ed5977e36b84152_36f859ba_100.png"> <img align="center" width="100" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/5be30008a3e28758ee06a192d029dc621c241de5/tumblr_d9445e01270096178739215cc314c391_5651941b_100.png">
+
+𖹭
+
+ZZZ
 </details>
 
 [<img align="center" width="200" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/af8c2612da5599f08caddbe6decf4fea4e4dc0c6/kuri(1).png">](https://gvardianangel.straw.page)   [<img align="center" width="200" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/d15f29666cb33a8e74a59700463a63780f00127e/cifer(2).png">](https://guns.lol/aregectze)    [<img align="center" width="200" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/af8c2612da5599f08caddbe6decf4fea4e4dc0c6/isda(1).png">](https://crimsonrodamrix.atabook.org/)
