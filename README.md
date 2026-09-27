@@ -19,7 +19,7 @@ $\texttt{\color{#b5ab9f}kuri}$ $\texttt{\color{#a49179}cifer}$   $\texttt{\col
 zzz
 </details>
 
-[<img align="center" width="300" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/af8c2612da5599f08caddbe6decf4fea4e4dc0c6/kuri(1).png">](https://gvardianangel.straw.page)   [<img align="center" width="300" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/d15f29666cb33a8e74a59700463a63780f00127e/cifer(2).png">](https://guns.lol/aregectze)    [<img align="center" width="300" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/af8c2612da5599f08caddbe6decf4fea4e4dc0c6/isda(1).png">](https://crimsonrodamrix.atabook.org/)
+[<img align="center" width="200" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/af8c2612da5599f08caddbe6decf4fea4e4dc0c6/kuri(1).png">](https://gvardianangel.straw.page)   [<img align="center" width="w00" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/d15f29666cb33a8e74a59700463a63780f00127e/cifer(2).png">](https://guns.lol/aregectze)    [<img align="center" width="200" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/af8c2612da5599f08caddbe6decf4fea4e4dc0c6/isda(1).png">](https://crimsonrodamrix.atabook.org/)
 
  
 
