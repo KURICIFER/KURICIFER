@@ -37,12 +37,27 @@ I am online 24/7, staying home most of the time, so you'll find me on almost eve
  
 
 this is the oomfie spot. i mention them here so if you'd like to be mentioned in here if your one of my moots then ask meeee :3
+they will be listed as characters from fandoms I know and what they remind me of
+
+OH and if you want to be a specific character when i list you here ask me
 
 <div align="left">
 
-$\texttt{\color{#c83c6a}Penelope Shifter : @PixelBrickz}$
+$\texttt{\color{#c83c6a}Penelope Shifter : @PixelBrickz <333}$
 
 $\texttt{\color{#710c0c}Xaphan : @RottenPlate}$
+
+$\texttt{\color{#758282}Mansur : @Nate, he doesn't have a github}$
+
+$\texttt{\color{#af2020}Red Mungus : @mebook4}$
+
+$\texttt{\color{#7d1a67}Warchief : @self-preservation8}$
+
+$\texttt{\color{#3e4448}Argent Grey : @pwnedbyskeet}$
+
+<div align="right">
+
+$\texttt{\color{#af2020}Captain Red : @MIR4-HQ}$
 </details>
 
 [<img align="center" width="200" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/af8c2612da5599f08caddbe6decf4fea4e4dc0c6/kuri(1).png">](https://gvardianangel.straw.page)   [<img align="center" width="200" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/d15f29666cb33a8e74a59700463a63780f00127e/cifer(2).png">](https://guns.lol/aregectze)    [<img align="center" width="200" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/af8c2612da5599f08caddbe6decf4fea4e4dc0c6/isda(1).png">](https://crimsonrodamrix.atabook.org/)
