@@ -29,6 +29,8 @@ Kuri, Tobias or Phantom is the name. If you'd like to know my other names I use,
 I am an introvert, meaning I spend my time alone most of the time and don't socialize with others as much. But it doesn't make me unapproachable, I will absolutely be happy and willing to be your friend. I may appear as shy or quiet, but when you get to know me I can be pretty talkative. I have no DNI, though I prefer wanting others of 13- and 21+ to interact with caution with me. Overall, don't be weird around me or my friends.
 
 I am online 24/7, staying home most of the time, so you'll find me on almost everyday whenever I'm at docks or flowershop, though mostly docks. CXH is absolutely encouraged, and I enjoy others sitting next to me while I'm on the game doing work offtab. I am boyflux, though my pronouns are They/Them heavy, you can use He/Him if you like, but I prefer if you use They/Them on me more often unless you are one of my closer friends.
+
+GMT+8, I'm online around 10am to 12am, after 12am I hop off. I'm mostly offtab, so whisper to interact.
 </details>
 
 <details>
