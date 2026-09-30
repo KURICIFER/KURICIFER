@@ -59,7 +59,11 @@ $\texttt{\color{#3e4448}Argent Grey : @pwnedbyskeet}$
 
 <div align="right">
 
+oomfs that i yet have to get into my friendlist on pt once i see them IMSORRY GUYS... IM OFFTAB A LOT SO I MISS THE CHANCCE TO WHISPER
+
 $\texttt{\color{#af2020}Captain Red : @MIR4-HQ}$
+
+$\texttt{\color{#b9a18a}Doctor White : @lov3wires}$
 </details>
 
 [<img align="center" width="200" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/af8c2612da5599f08caddbe6decf4fea4e4dc0c6/kuri(1).png">](https://gvardianangel.straw.page)   [<img align="center" width="200" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/d15f29666cb33a8e74a59700463a63780f00127e/cifer(2).png">](https://guns.lol/aregectze)    [<img align="center" width="200" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/af8c2612da5599f08caddbe6decf4fea4e4dc0c6/isda(1).png">](https://crimsonrodamrix.atabook.org/)
