@@ -61,8 +61,6 @@ $\texttt{\color{#3e4448}Argent Grey : @pwnedbyskeet}$
 
 $\texttt{\color{#b9a18a}Doctor White : @lov3wires}$
 
-oomfs that i yet have to get into my friendlist on pt once i see them IMSORRY GUYS... IM OFFTAB A LOT SO I MISS THE CHANCCE TO WHISPER
-
 $\texttt{\color{#af2020}Captain Red : @MIR4-HQ}$
 </details>
 
