@@ -45,9 +45,9 @@ OH and if you want to be a specific character when i list you here ask me
 
 <div align="left">
 
-$\texttt{\color{#c83c6a}Penelope Shifter : @PixelBrickz <333}$
+$\texttt{\color{#c83c6a}Penelope Shifter : @PixelBrickz <333 best oomf since one year and a half i think}$
 
-$\texttt{\color{#710c0c}Xaphan : @RottenPlate}$
+$\texttt{\color{#710c0c}Xaphan : @RottenPlate best oomf since one year!!!!!!!}$
 
 $\texttt{\color{#758282}Mansur : @Nate, he doesn't have a github}$
 
