@@ -76,8 +76,7 @@ $\texttt{\color{#af2020}Captain Red : @MIR4-HQ}$
 
  
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Kaushan+Script&size=30&pause=900&color=5F5A34&width=445&lines=%E2%80%81)](https://git.io/typing-svg)
- [![Typing SVG](https://readme-typing-svg.demolab.com?font=Kaushan+Script&size=30&pause=900&color=5F5A34&width=445&lines=%E2%80%81;It's+like+it's+mocking+me.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Kaushan+Script&size=30&pause=900&color=5F5A34&width=445&lines=%E2%80%81;It's+like+it's+mocking+me.)](https://git.io/typing-svg)
  
 
 <img align="center" width="1000" src="https://github.com/KURICIFER/KURICIFER/blob/e727ab78530fa8bb0cadb1cc4e2a6bf2413a04ff/tumblr_eb14d60c6d71d9b65bb07baa8691c9f5_30ca1ea6_1280(1).png">
