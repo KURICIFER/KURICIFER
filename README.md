@@ -1,6 +1,6 @@
 <div align="center">
  
-<img align="center" width="100" src="https://github.com/KURICIFER/KURICIFER/blob/5ef75874e6e682ff4fe1784c1503582ab2dbbf50/Victim_as_H4CK3R.webp">
+<img align="center" width="250" src="https://github.com/KURICIFER/KURICIFER/blob/5ef75874e6e682ff4fe1784c1503582ab2dbbf50/Victim_as_H4CK3R.webp">
 
    
 
