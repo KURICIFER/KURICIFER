@@ -17,6 +17,8 @@ $\texttt{\color{#7b9d9e}i'm coming}$ $\texttt{\color{#5b756a}home. did}$ $\textt
 <img align="center" width="1100" src="https://github.com/KURICIFER/KURICIFER/blob/ab736ecac4b892c85356b8d5a72033363184735a/lowerdivider.png">
 
    
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Quintessential&duration=3000&pause=1100&color=7B9D9E&width=435&lines=I'm+glad+that%2C+I+am+me.;I'm+glad%2C+I'm+glad.;If+I+were+you%2C+it+would+be+better.;It+would+be+better%2C+be+better.)](https://git.io/typing-svg)
+
 
 <details>
 <summary>$\texttt{\color{#4b584d}BYI}$</summary>
