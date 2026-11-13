@@ -1,7 +1,7 @@
 <div align="center">
- 
-<img align="center" width="250" src="https://github.com/KURICIFER/KURICIFER/blob/5ef75874e6e682ff4fe1784c1503582ab2dbbf50/Victim_as_H4CK3R.webp">
 
-   
+<img align="center" width="1100" src="https://github.com/KURICIFER/KURICIFER/blob/0ba0076457abfc55c43f8c9f6b4cf86fccccfbd3/dividerhere.png">
 
-$\texttt{\color{#51979f}Stand}$ $\texttt{\color{#348c85}by.}$ $\texttt{\color{#2d757e}Undergoing}$ $\texttt{\color{#22536d}construction.}$
+<img align="center" width="450" src="https://github.com/KURICIFER/KURICIFER/blob/0ba0076457abfc55c43f8c9f6b4cf86fccccfbd3/didyoumissme_.png">
+
+$\texttt{\color{#7b9d9e}i'm coming}$ $\texttt{\color{#5b756a}home. did}$ $\texttt{\color{#4b584d}you miss}$ $\texttt{\color{#7b9d9e}me?}$
