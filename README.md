@@ -31,4 +31,8 @@ I am an introvert, meaning I spend my time alone most of the time and don't soci
 I am online 24/7, staying home most of the time, so you'll find me on almost everyday whenever I'm at docks mostly. CXH is absolutely encouraged, and I enjoy others sitting next to me while I'm on the game doing work offtab. I am boyflux(though leaning more agender), though my pronouns are They/Them heavy, you can use He/Him if you like, but I prefer if you use They/Them on me more often unless you are one of my closer friends. I'm a horrible procrastinator so absolutely my strawpage WILL be left untouched.
 
 GMT+8, I'm online around 10am to 12am, after 12am I hop off. I'm mostly offtab, so whisper to interact.
+
+[<img align="center" width="200" src="https://github.com/KURICIFER/KURICIFER/blob/34d3aa41c15a0d1756c8a7152e8caa061d5e29d5/e1b8a3195aa587f561a08ba59f9353d7.jpg">](https://crimsonrodamrix.atabook.org/)
+
+click here for dat ata. yellreen slop in a victim themed github?!!!!!
 </details>
